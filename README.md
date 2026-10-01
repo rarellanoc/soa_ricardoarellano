@@ -1,2 +1,2 @@
-# soa_ricardoarellano
+# ricardo arellano
 Statement of Accomplishments
